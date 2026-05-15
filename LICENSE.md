@@ -1,4 +1,4 @@
-# 
+# AI-powered nft arbitrage bot | profit-calculator + trailing-stop offers the most advanced nft arbitrage bot, with profit-calculator and trailing-stop. Ideal for professional NFT
 
 
 
